@@ -1,0 +1,2 @@
+# Vezbanje
+vezbanje za cas
